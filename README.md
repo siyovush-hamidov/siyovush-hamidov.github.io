@@ -1,1 +1,0 @@
-# siyovush-hamidov.github.io
